@@ -18,3 +18,8 @@ Too es para el final de la oración
 1. [[English/Listening/Listening|Listening]]
 2. [[Grammar]]
 3. [[Reading]]
+## Inglés hablado
+- isnt it though, verdad?
+- out of order, fuera de servicio
+- out of the blue, inesperadamente
+- 
