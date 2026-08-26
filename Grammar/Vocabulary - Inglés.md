@@ -1,0 +1,3 @@
+#Inglés 
+## Sinónimos
+Shut, close
