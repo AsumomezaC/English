@@ -1,0 +1,18 @@
+#Idioma #Comunicación 
+- call of, cancelar
+- show up, llegar/arrive
+- about to, casi listo, almost ready to
+- a breeze, algo simple y fácil de hacer
+- get into hot water, estar en un problema
+- run into, toparse con alguien
+- on edge, nerviosx
+- under the weather, un poco enfermo
+- take after, look like
+- for good, permanently
+- a stone throw from, close to
+- put of, delayed
+- stand out, algo fácil de ver, resalta
+- serve right, merecer
+- save your breath, guarda tus palabras
+- by and large, en general
+- 
