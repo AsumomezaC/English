@@ -15,4 +15,13 @@
 - serve right, merecer
 - save your breath, guarda tus palabras
 - by and large, en general
-- 
+- run of the mill, algo común, sin nada especial
+- what the doctor order, algo que es necesario o ventajoso
+- a breeze, algo fácil de hacer
+- lend a hand, echar una mano
+- chip in, contribuir con dinero o ayuda
+- call it a day, terminar la actividad por el momento 
+- by heart, conocer algo perfectamente 
+- come around, recuperar a conciencia, cambiar de opinión 
+- ring a bell, sonar, de parecer conocido,como 'me suena'
+- go without saying, algo tan obvio que no hace falta mencionarlo
