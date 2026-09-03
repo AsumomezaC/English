@@ -25,3 +25,4 @@
 - come around, recuperar a conciencia, cambiar de opinión 
 - ring a bell, sonar, de parecer conocido,como 'me suena'
 - go without saying, algo tan obvio que no hace falta mencionarlo
+- Can I take a rain check?, Could we do this some other time?
