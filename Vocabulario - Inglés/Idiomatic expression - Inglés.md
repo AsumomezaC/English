@@ -27,3 +27,7 @@
 - go without saying, algo tan obvio que no hace falta mencionarlo
 - Can I take a rain check?, Could we do this some other time?
 - how come?, why, cómo es posible qué 
+- warm up, cambiar de parecer
+- how about...?, qué tal ...?
+- old hand, alguien con mucha experiencia
+- pretty penny, algo valioso o costoso
