@@ -9,3 +9,4 @@
 - Signing, lenguaje de señas americano
 - clerk, vendedor
 - shipwreck,naufragio
+- debris, basura espacial
