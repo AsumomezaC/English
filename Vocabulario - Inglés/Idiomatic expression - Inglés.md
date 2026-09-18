@@ -31,3 +31,15 @@
 - how about...?, qué tal ...?
 - old hand, alguien con mucha experiencia
 - pretty penny, algo valioso o costoso
+- better off, improve a condition
+- all of a sudden, suddenly
+- bound to, sure to
+- by and large, generally
+- break the news, inform, give bad news
+- at ease, not nervous,calm
+- brush up on, review, study
+- beats me, i dont know, i have no idea
+- bitte off more than one can, el que mucho abarca poco aprieta
+- be rusty, need practice or review
+- cut off, discontinue, stop
+- 
